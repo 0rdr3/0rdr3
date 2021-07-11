@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @0rdr3
+- 🤖 I'm Trying to Learn Code
+- 🔨 Dc: ordre#1000
